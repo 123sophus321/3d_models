@@ -1,0 +1,1 @@
+Horse kit card by drakengard780 on Thingiverse: https://www.thingiverse.com/thing:6528630
